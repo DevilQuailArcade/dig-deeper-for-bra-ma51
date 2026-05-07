@@ -1,4 +1,4 @@
-
+dig deeper for brainrots ultimate Script is the best dig deeper for brainrots Script, featuring god mode and auto-farm. Safe and powerful for all
 
 
 
